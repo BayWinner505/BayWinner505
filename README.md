@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BayWinner505
-- 🌱 I’m currently Studyiong BSc (Hons) Computer Science ad Teeside Uni.
+- 🌱 I’m currently Studying BSc (Hons) Computer Science at Teesside Uni.
 - 📫 How to reach me : khanushnah@gmail.com
 - ⚡ Fun fact: I watched a film production shoot of bollywood movies and met bollywood star Salman Khan.
 
